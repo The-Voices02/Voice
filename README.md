@@ -5,4 +5,4 @@ Under contruction! ![](https://komarev.com/ghpvc/?username=The-Voices02)
 
 Please wait until further details are added!
 
-𝒪𝓉𝒽𝑒𝓇 𝒶𝒸𝒸𝑜𝓊𝓃𝓉𝓈 ; @
+𝒪𝓉𝒽𝑒𝓇 𝒶𝒸𝒸𝑜𝓊𝓃𝓉𝓈 ; [@ObsessionZone](https://github.com/ObsessionZone), [@WalkingTW](https://github.com/WalkingTW), [@Hearts4sheherTrump](https://github.com/Hearts4sheherTrump),
